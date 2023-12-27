@@ -1,2 +1,2 @@
 # hacker
-Has sido hackeado. 
+Hola amigo, solo quería decirte que he accedido a tu cuenta de GitHub y he hecho algunos cambios en tus proyectos. No te preocupes, no he hecho nada malicioso, solo robe tus credenciales de acceso y contraseñas. Espero que no te importe demasiado, ¡y espero que te haya hecho reír un poco! Si tienes algún problema con lo que hice, házmelo saber al siguiente correo: soytuput0hack3er@gmail.com; y lo arreglaré de inmediato. ¡Que tengas un buen día!
